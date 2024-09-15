@@ -1,2 +1,4 @@
 # viduchung-telegram-bot
-reup skid bot ddos dumped
+reup dumped and leaked by me lmfao
+
+Discord: discord.gg/gang1337
